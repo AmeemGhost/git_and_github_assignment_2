@@ -1,1 +1,1 @@
-# git_and_github_assignment_2
+Hello everyone. My name is Ameem Rahman. Welcome to photography page. I shoot couples, weddings, fashion and editorial. Please feel free to look through my portfolio and go through all the photos if you like. Feel free to contact me for any inquires. I look forward connecting with you. Let's bring your memorable moments to life. ❤️
